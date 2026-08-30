@@ -1,0 +1,1 @@
+# AI-OS-Linux-Fedora-i-Ubuntu-skrypty-do-pisania-sytem-w-OS-Lot
